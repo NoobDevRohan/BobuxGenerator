@@ -4,8 +4,9 @@ Free Bobux new mothod 100% \*\*legit\*\* and legal, Get unlimited Bobux for free
 
 [Click here to get free bobux](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 ---------------------------------------------------------------------------
-
+<a href="https://www.youtube.com/watch?v=dQw4w9WgXcQ">
 <img src="https://bit.ly/2YbbrwR" alt="Bobux" width="200"/>
+</a>
 
 What is Bobux?
 
